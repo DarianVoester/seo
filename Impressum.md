@@ -10,7 +10,7 @@ Deutschland
 
 **Kontakt:**  
 E-Mail: senc.cloud@outlook.de
-Weitere Kontaktmöglichkeit: [GitHub Issues](https://github.com/<dein-user>/seo/issues)
+Weitere Kontaktmöglichkeit: www.linkedin.com/in/darian-voester-0a5a3435b
 
 **Verantwortlich für den Inhalt nach § 18 Abs. 2 MStV:**  
 Darian Vöster (Anschrift wie oben)
